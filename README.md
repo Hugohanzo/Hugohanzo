@@ -4,7 +4,7 @@
 
 <br>
 
-</strong>Gosto tambem de manga , Anime e de ficar com minha familia</p>
+</strong>Gosto de jogar, conversar e ficar com minha familia</p>
 
 FEITO E PRODUZIDO POR HUGO :)
 <br>
